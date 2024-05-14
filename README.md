@@ -4,7 +4,7 @@ Repositório da turma 3A2
 
 Sejam todos bem vindos
 
-![](https://tenor.com/bSurz.gif
+![](https://tenor.com/bSurz.gif)
 
 contato email 📧 cesarmigueldasilva10@gmail.com
 
