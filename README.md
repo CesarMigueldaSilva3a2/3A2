@@ -4,7 +4,6 @@ Repositório da turma 3A2
 
 Sejam todos bem vindos
 
-![](https://media.tenor.com/YVG0xDJg5eQAAAAM/teach-teaching.gif)
 ![](https://tenor.com/pt-BR/view/simpson-gif-25340727)
 
 contato email 📧 cesarmigueldasilva10@gmail.com
